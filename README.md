@@ -1,0 +1,1 @@
+# 15.6-inch-high-resolution-extender-improve-efficiency-and-visual-experience
